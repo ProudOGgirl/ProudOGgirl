@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ProudOGgirl
+- 🌱 I’m currently learning 
